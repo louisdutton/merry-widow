@@ -18,7 +18,7 @@ NJEGUS Very well, Count Danilovitch..
 
  (Song – I’m off to Chez Maxime)
 
-__DANILO Njegus, my adored one.  Where’s our revered ambassador?  Under the table?__
+__DANILO Njegus, my adored one.  Where’s our revered ambassador? __
 
 NJEGUS By your leave, he’s  deep in conversation with Madame Glawari.
 
