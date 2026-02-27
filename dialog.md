@@ -515,15 +515,11 @@ __DANILO I must explain.  At Maxime’s there will be excellent dancing by you
 
 HANNA He has certainly danced with me.   But what has he said – nothing at all.
 
-__DANILO Well that’s how it is.  So what do we do now?__
+__DANILO Well that’s how it is.  So what will we do?__
 
 HANNA It’s up to you sir.
 
-__DANILO Very well, the Moulin Rouge!__
-
-HANNA And what do we do there?
-
-__DANILO Dance of course.__
+__DANILO Dance.__
 
 ZETA Njegus, listen to this.  I have asked my wife to spy on Camille de Rosillion.  And she has consented.  You see I know how to get things done..  And there they are.  Both of them.  How she flirts and gazes into his eyes.  Ha ha.. Splendid woman, exemplary wife.  
 
@@ -829,7 +825,7 @@ HANNA I shall tell you the reason you are forbidding me to marry Camille... be
 
 __DANILO I?...Really... No..no..__
 
- Your millions have got to remain in the country – to keep it going.
+ Your millions have got to remain in the fatherland – to keep it going.
 
 HANNA The marriage with de Rosillion is – off.
 
